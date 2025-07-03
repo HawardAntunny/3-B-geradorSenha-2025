@@ -1,0 +1,1 @@
+# 3-B-geradorSenha-2025
